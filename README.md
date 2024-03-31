@@ -16,4 +16,5 @@
 
 ## Тема 3
 [ВСР 3.1](https://branched-dead-613.notion.site/3-1-5a8b296d00ec4414931b69100dcd935d?pvs=4)
+
 [ВСР 3.2](https://www.powtoon.com/s/fMwNmO7jnLr/1/m/s)
